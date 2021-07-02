@@ -18,3 +18,8 @@ https://paidcodes.albdroid.al/Players/Porn_Embed_Player_AIO/
     drtuber.com
     slutload.com
     xhamster.com
+    eporner.com
+    gotporn.com
+    homemoviestube.com
+    pervertslut.com
+    sunporno.com
