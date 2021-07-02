@@ -5,6 +5,7 @@ Play in Embed Mode From Porn Sites
 # Hosted API
 
 https://paidcodes.albdroid.al/Players/Porn_Embed_Player_AIO/
+# Unlock Pass: 123456 + Enter
 
 # Hosts
     xvideos.com
